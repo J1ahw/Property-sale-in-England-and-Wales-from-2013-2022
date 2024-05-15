@@ -10,6 +10,10 @@ https://github.com/J1ahw/Property-sale-in-England-and-Wales-from-2013-2022/asset
 
 
 
+https://github.com/J1ahw/Property-sale-in-England-and-Wales-from-2013-2022/assets/123384453/4377c5ea-ac21-418d-8bca-10c4c4b97139
+
+Show Detail Button
+
 
 https://github.com/J1ahw/Property-sale-in-England-and-Wales-from-2013-2022/assets/123384453/26b92f61-8376-4327-bfa8-abd0cf4fe803
 
@@ -21,3 +25,7 @@ https://github.com/J1ahw/Property-sale-in-England-and-Wales-from-2013-2022/asset
 
 
 ### Page 4
+
+
+https://github.com/J1ahw/Property-sale-in-England-and-Wales-from-2013-2022/assets/123384453/efa7b150-c4d2-47b7-ac04-7a2227ecbb3c
+
